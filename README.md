@@ -1,1 +1,1 @@
-# <b>Currículo</b>
+# <b>Curriculum vitae</b>
